@@ -7,4 +7,4 @@ The collected data is used for analyzing public discourse on social media. We do
 ## User Rights
 If you wish to have your data removed from our research, please contact us.
 ## Contact
-If you have any questions, you can reach us at your-email@example.com.
+If you have any questions, you can reach me at xy940608@iCloud.com
